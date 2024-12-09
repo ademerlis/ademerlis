@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ademerlis
-- 👀 I’m interested in reef-building corals, and ways we can conserve them in the face of climate change!
+- 👀 I’m interested in enhancing coral resilience to climate change stressors, and applications for coral restoration efforts in Florida.
 - 🌱 I’m currently learning how to study gene expression of different species of reef-building corals in response to heat stress and injury.
 - 💞️ I’m looking to collaborate on projects related to assisted acclimatization and stress-hardening!
 - 📫 How to reach me: my email is allyson.demerlis@gmail.com
